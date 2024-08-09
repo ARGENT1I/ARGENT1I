@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/55d1dc4dc3ab34969677a768d9dd8f3c/8dfd1553becec91e-88/s1280x1920/7b3d0848ba265656d65ba955b4ad287e14f463d9.pnj)
  ![](https://64.media.tumblr.com/4c593ff6f2e7caa4b0f6dc388f2b446e/8dfd1553becec91e-26/s1280x1920/a16038078c343f16ff713ba4bddec2ed8f34bf94.pnj)
   
-->              ୭ ˚. ᵎᵎ  **M**I*n*x or **S**i*m*e~~o~~**n** :      ![]( https://64.media.tumblr.com/9fed743449076a7d24fc84265989c6bd/da7239375d11dd69-c5/s75x75_c1/a2c7705a78217d760ec7869f8fc6863606d11c50.gifv)      .           , **1~** *6*  ~  *0* ~~8~~ + 0 **2** : <-
+->              ୭ ˚. ᵎᵎ  **M**I*n*x or **S**i*m*e~~o~~**n** :      ![]( https://64.media.tumblr.com/9fed743449076a7d24fc84265989c6bd/da7239375d11dd69-c5/s75x75_c1/a2c7705a78217d760ec7869f8fc6863606d11c50.gifv)      .           , **1** *6*    *0* ~~8~~ + 0 **2** : <-
 
  ->   ![](https://64.media.tumblr.com/2b9631c434090bcc3f383950cb940781/da7239375d11dd69-62/s75x75_c1/49582da3f00da1abe5d55c2b8804fd950e522860.gifv) ıllı , .    ﾉ **h** *e* + *t* h **e** y:  <-
 
