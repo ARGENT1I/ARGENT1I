@@ -3,7 +3,7 @@
   
 ->              ୭ ˚. ᵎᵎ  **M**I*n*x or **S**i*m*e~~o~~**n** :      ![](https://64.media.tumblr.com/5f38cc794f6360e85cc2ce743dcbe55d/08074beda4cc8409-05/s75x75_c1/ec26e19db787a0e76eaa539bc7e1f19f847cfa27.gifv)      .           , **1** *6*    *0* ~~8~~ + 0 **2** : <-
 
- ->   ![](https://64.media.tumblr.com/2b9631c434090bcc3f383950cb940781/da7239375d11dd69-62/s75x75_c1/49582da3f00da1abe5d55c2b8804fd950e522860.gifv) ıllı , .    ﾉ **h** *e* + *t* h **e** y:  <-
+ ->   ![](https://64.media.tumblr.com/fd2ce59880402585e5cfb825da96a872/67280e8b1a696d5e-8f/s75x75_c1/1c96b5513edf756390599e8eee107422f04d9689.gifv) ıllı , .    ﾉ **h** *e* + *t* h **e** y:  <-
 
 
 ![I am an outgoing person.](https://64.media.tumblr.com/6f8729eb9be4f9c5d376e8adba3f5ab1/291b57fc1bf1e0d5-2f/s100x200/bcab182e3256082001a03394f88043de48df443d.pnj) ![I get easily distracted!](https://64.media.tumblr.com/f094f0b7749b80f4b5cb95293684db9f/22b711b2a5147ae4-d4/s100x200/e962ef74591bf90d7d5236a51bed5fa6aaef98e7.pnj) ![](https://64.media.tumblr.com/d515fa1b0b5e7123a5c5a44dac6350c7/db10037502ed8937-06/s100x200/ad89e6a13cf186bf74fde4f41be3360e410f2fd1.pnj) ![](https://64.media.tumblr.com/d8141662307838ade9bede1cdb20eeda/db10037502ed8937-74/s100x200/c0a2e704686bd8a8419d3d5b4887260ebcd3b3e8.gifv) ![](
