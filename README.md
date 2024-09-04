@@ -1,5 +1,6 @@
 ![](https://64.media.tumblr.com/cfc71be0e8741848d8755ffca0db58a7/b8d8bc08f3a929b2-80/s2048x3072/1e89527ab6df652c198cef5ada4f55744c6cbda6.pnj)
- ![](https://64.media.tumblr.com/83a7616a0eeffb92aecf48aeab328b7e/1fc6cbdec57773f1-4a/s1280x1920/c5186f281cd89a382ddab5f13364d29e928dc2d0.pnj)
+
+![](https://64.media.tumblr.com/b329ae4cbe2f9b020518162c5b634c6c/c238a6127b95bf51-a3/s1280x1920/092ad434abf6520fe89f3cfe66664d050bd58292.webp)
   
 ->              ୭ ˚. ᵎᵎ  **M**I*n*x or **S**i*m*e~~o~~**n** :      ![](https://64.media.tumblr.com/f93e291c15643f76dd3b0997ad59547a/48ab18e98b53e06b-0a/s75x75_c1/b7ac081fed1c9222e968c842dc53753dc3dddc3f.gifv)      .           , **1** *6*    *0* ~~8~~ + 0 **2** : <-
 
