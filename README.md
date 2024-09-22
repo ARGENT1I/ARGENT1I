@@ -1,8 +1,8 @@
--> cr to [velaazuretail](https://www.tumblr.com/velaazuretail/753941416083947520/daily-clicks-ılıl) on tumblr! <-
+-> cr to [lavendergalactic](https://www.tumblr.com/lavendergalactic) on tumblr! <-
 
 ![](https://64.media.tumblr.com/281690dbb879b77859e3564a04d02e38/9e2fca3d59303192-c6/s2048x3072/35e09505522bdbd7a0830b32c29cf9a3dcbd35a4.pnj)
 
-![](https://64.media.tumblr.com/9d4d3f6aeea7de94c6470e3f9c4c0218/76da76084a581b56-4b/s1280x1920/ba90f18b260b704914ff0c21f63bce53373f90ec.jpg)
+ ![](https://64.media.tumblr.com/4f2eb755f92a47275892e7110e196ddd/48aa5881d37101b5-51/s540x810/814950dadcf500f3beed4a7b6407fba650499e91.pnj)
   
 ->              ୭ ˚. ᵎᵎ  **M**I*n*x or **S**i*m*e~~o~~**n** :      ![](https://64.media.tumblr.com/d0aecd71c0f09576d097743a66698205/32929d34c3ec3b76-ca/s75x75_c1/0cf48767e34f8e3844839c8307d6ba28815e5c83.gifv)      .           , **1** *6*   | *0* ~~8~~ + 0 **2** : <-
 
